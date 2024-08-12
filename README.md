@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **chommanee.ruji@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1jS6ZelMr9r-MljiIwpZ8ceIBHL1sGVxh?usp=sharing](https://drive.google.com/drive/folders/1jS6ZelMr9r-MljiIwpZ8ceIBHL1sGVxh?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/drive/folders/1jS6ZelMr9r-MljiIwpZ8ceIBHL1sGVxh?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
